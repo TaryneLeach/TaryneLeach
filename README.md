@@ -6,4 +6,4 @@ Hello, my name is Taryne Leach and I am currently in the process of becoming a F
 
 ![](https://www.temptalia.com/wp-content/uploads/2019/08/anastasia_jackie-aina_002_palette.jpg)
 
-![](https://www.megateksa-ks.com/en/eau-de-parfum-edp-for-women-donna-born-in-roma-yellow-dream-valentino-glass-100-ml-yellow-1-piece)
+![](http://cdn.fashdirect.com/webadmin/items/website/1301614/image_2_164995392529_1.jpg)
